@@ -1,4 +1,4 @@
-# 💫 About Me:
+# ☄️ About Me:
 He who study is gay.
 
 
